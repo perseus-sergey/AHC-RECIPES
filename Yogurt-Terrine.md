@@ -1,48 +1,81 @@
-Can you have a decadent cheesecake for breakfast and still hit your protein goals? Absolutely! 🥣 Today I’m sharing my ultimate 72g Protein Air Fryer Greek Yogurt Cake — a Mediterranean-inspired, flourless, and sugar-free recipe that will change your healthy eating game.
+#### 1. Підготовка інгредієнтів:
 
-From the heart of Glyfada, Greece, I’ll show you how to turn simple ingredients like authentic Greek yogurt, whey isolate, and fresh berries into a high-protein masterpiece. Plus, stick around for a crucial kitchen hack about "True Cinnamon" (Ceylon) and why it’s a game-changer for your liver health. 🇬🇷✨
+- **Грецький йогурт (2% або 5%):** 700-800 г.
+- **Чіа:** 3 ст. л.
+- **Апельсин:** 1 великий (сік для чіа + цедра для аромату).
+- **Желатин:** 8 листів (цього вистачить для ніжної, але стабільної структури йогурту).
+- **Полуниця:** 150-200 г (найкрасивіші ягоди — для декору, решта — всередину).
+- **Лохина:** 100 г.
+- **Банан:** 1 шт.
+- **Горіхи (грецькі або фісташки):** жменя (подрібнити ножем).
+- **Мед:** 2-3 ст. л. (за смаком).
+- **Спеції:** Кориця, сухий імбир (по 0.5 ч. л.).
 
-📌 _IN THIS VIDEO, YOU WILL LEARN:_
+#### 2. Інструменти та посуд:
 
-- How to make a moist, fudge-like protein cake in an Air Fryer.
-- The secret to balancing protein powder scent with citrus zest.
-- Why Ceylon Cinnamon (Κανέλα Κεϋλάνης) is the only choice for longevity.
-- My #1 "Foil Boat" hack for zero cleanup and better crust.
+- Силіконова форма 20 см.
+- Велика миска для змішування.
+- Маленька мисочка для замочування чіа.
+- Глибока тарілка з холодною водою (для желатину).
+- Сотейник або маленька каструлька (розтопити желатин).
+- Вінчик (не міксер, щоб не було зайвих бульбашок).
+- Дошка, ніж, тертка для цедри.
 
-✅ _MACROS (Whole Cake):_
+---
 
-- Protein: 72g
-- Calories: ~720 kcal
-- Net Carbs: ~35g
-- Sugar: 0g (Naturally sweetened by banana)
+### Процес (покроково):
 
-🛒 _INGREDIENTS:_
+**Крок 1: Чіа (за 20-30 хв до початку)**
+Вичав сік з апельсина. Залий 3 ст. л. насіння чіа апельсиновим соком, перемішай. Залиш набухати. Вони мають ввібрати весь сік.
 
-- 250g Authentic Greek Yogurt (5% fat)
-- 1 ripe Banana
-- 2 Large Eggs
-- 1 scoop Whey Protein Isolate (Unflavored)
-- 1 scoop Collagen Peptides
-- ½ tsp Ceylon Cinnamon
-- 1 tsp Chia Seeds
-- Fresh Blueberries & Almonds
-- Lemon & Orange Zest
-- For serving: Fresh Strawberries, Mint, and Extra Virgin Olive Oil
+**Крок 2: Желатин**
+Візьми 8 листів желатину. Поклади їх по одному у глибоку тарілку з **дуже холодною** водою. Залиш на 7-10 хвилин.
 
-⏱️ _TIMESTAMPS:_
-0:00 - The 72g Protein Secret (Intro)
-0:20 - The Zesty Foundation
-1:09 - The Longevity Core
-2:38 - The True Cinnamon Hack (Don't skip!)
-3:40 - Anti-Aging Toppings
-4:02 - Air Fryer Magic (Time & Temp)
-4:44 - The Final Aegean Touch (Plating)
-6:15 - The Perfect Bite & Nutrition Facts
+**Крок 3: Підготовка фруктів та горіхів**
 
-🔗 _SUBSCRIBE for more Healthy Mediterranean Hacks:_
-https://www.youtube.com/@AegeanHealthyCooking?sub_confirmation=1
+- Полуницю розріж на тонкі слайси (поздовжньо, щоб було видно форму серця).
+- Банан наріж кружальцями або невеликим кубиком.
+- Горіхи порубай ножем (не в пил, мають бути шматочки для текстури).
+- Натри цедру апельсина.
 
-📍 _FOLLOW ME FOR MORE HACKS:_
-🥗 TikTok: https://www.tiktok.com/@aegeanhealthycooking
+**Крок 4: Декор форми (Важливо для відео!)**
 
-#AirFryerRecipes #HighProtein #MediterraneanDiet #GreekYogurtCake #KetoDessert #HealthyBreakfast #WeightLossRecipes #Longevity #BlueZoneDiet #AegeanCooking
+1. Постав силіконову форму на тверду дошку (щоб було зручно переносити в холодильник).
+2. Ополосни форму холодною водою: Просто підстав її під кран, а потім струсни зайву воду. Не витирай її рушником! Форма має залишитися вологою, з дрібними крапельками, але без калюжі на дні.
+3. На дно сухої силіконової форми виклади найкрасивіші слайси полуниці та кілька ягід лохини. Можна викласти візерунком (наприклад, по колу). Це буде "обличчя" твого десерту.
+   **Крок 5: Йогуртова база (Тільки рідкі компоненти)**
+   У великій мисці змішай: йогурт, мед, цедру апельсина, корицю та імбир. Збий вінчиком до повної гладкості.
+
+**Крок 6: Робота з желатином (Критичний момент)**
+
+1.  Розтопи желатин (як ми обговорювали — не кип'ятити!).
+2.  **Важливо:** Додай 2-3 ложки йогурту прямо в сотейник до гарячого желатину. Швидко перемішай.
+3.  Тепер цю суміш влий у основну миску з йогуртом і **інтенсивно працюй вінчиком**. Твоя мета — щоб желатин "зник" у йогурті, зробивши його однорідним.
+
+**Крок 7: Додавання начинки (The Folding)**
+Тепер, коли база ідеальна, додай у миску:
+
+- Набухлі чіа в соку.
+- Горіхи.
+- Шматочки банана.
+- Решту ягід лохини та полуниці (які не пішли на декор дна).
+  **Обережно перемішай ложкою або лопаткою** (не вінчиком!), щоб фрукти просто розподілилися в масі.
+
+**Крок 8: Фінальна збірка**
+Обережно, за допомогою великої ложки або черпака, почни наливати масу у форму поверх викладеної полуниці. Роби це повільно, щоб не зрушити "нижній декор". Коли заповниш — злегка постукай формою об стіл, щоб вийшло повітря.
+
+**Крок 9: Стабілізація**
+Постав у холодильник мінімум на 5-6 годин (найкраще — на ніч).
+
+**Крок 10: Подача (The Big Reveal)**
+
+1.  Дістань форму. Пальцями обережно відтягни краї силікону від застиглого десерту.
+2.  Накрий форму великою пласкою тарілкою.
+3.  Швидко переверни. Силіконова форма має легко знятися (якщо "залипне" — можна на 10 секунд прикласти зверху рушник, змочений у гарячій воді).
+
+**Фінальний штрих:** Посип зверху дрібкою свіжої цедри та (якщо хочеш) додай ще трохи меду тонкою лінією.
+
+---
+
+**Порада для зйомки на MacBook/DaVinci:**
+Коли будеш знімати розріз (Крок 10), обов'язково змочи ніж гарячою водою перед першим рухом — тоді зріз буде ідеально гладким, і на камері буде чітко видно кожну ягідку, горіх і насіння чіа. Це твій "Million Dollar Shot".
