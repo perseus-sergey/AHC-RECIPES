@@ -1,5 +1,7 @@
 # Mediterranean Keto Chicken Cutlets із збитою фетою та базиліковою олією
 
+![Chicken-Cutlets-Feta](IMG/Chicken-Cutlets-Feta.webp)
+
 ### 🛒 Інгредієнти
 
 **Для курки (Air Fryer):**
